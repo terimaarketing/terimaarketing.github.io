@@ -1,1 +1,0 @@
-# terimaarketing.github.io
